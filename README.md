@@ -15,3 +15,4 @@ Para probarlo:
 
 <br></br>
 
+![pricing-14](https://user-images.githubusercontent.com/99290382/188193682-18a8fc16-296e-4918-8f40-bb8524443ac8.jpg)
